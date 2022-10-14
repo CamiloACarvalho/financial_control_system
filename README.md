@@ -10,4 +10,4 @@ Welcome at my page and enjoy!!! ✌🏼🤙🏼
 <br>
 #
 
-![]("https://giphy.com/gifs/money-rich-scrooge-mcduck-26FPLMDDN5fJCir0A")
+*add gif
